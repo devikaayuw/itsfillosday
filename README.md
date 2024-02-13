@@ -1,2 +1,2 @@
 # itsfillosday
-little give for my dearest and most cherished friend ⋆˚✿˖°
+little gift for my dearest and most cherished friend ⋆˚✿˖°
